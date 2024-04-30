@@ -3,22 +3,24 @@ NAVIA THEME IN PROGRESS <3
 <img src="https://64.media.tumblr.com/c5a1a809dac7e128b2c98343ea301050/ca6818333059b6b1-e4/s2048x3072/931b7ed65d4f42c6eead44c8e405fac8167daf72.pnj"/>
 <img src="https://64.media.tumblr.com/dd63ec87d4163f4fa4a1d0c21094cf72/ca6818333059b6b1-40/s1280x1920/93e6cd406225fec1f1091a0d7887897c8e660ab4.pnj"/>
 
-<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
+<img src="https://64.media.tumblr.com/ddbfcaf2a0d37328c666e715c3027f65/773a41650f1e6f3c-59/s400x600/3bd99d6523e75ddebd40f29668126b9e2348ba21.webp"/>
 </h5>
 
 
 $${\color{#ac191c}"\space Oh, \space get \space what \space we \space deserve \space"}$$
-
 <h5 align="center">
-<img src="https://64.media.tumblr.com/c8a9b45bfeda18d97822e8118d753823/0b1cbee1c0dad611-dd/s2048x3072/8f4b158106391c9173ecdcea33a70e4998973a60.pnj"/>
+<img src="https://64.media.tumblr.com/51980aec8db84c1aec8f4a4fce0ed2f9/3fa4bf346738eaa6-51/s640x960/1eb23e6e31d4f1e445d35c7a50e02040b903afbf.pnj"/>
 </h5>  
+
 
 <h4 align="center">
 Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan , Neuvillette and Imbibitor Lunae heavy IRL / srs ♡ She / They pronouns
 </h4> 
+
 <h5 align="center">
-<img src="https://64.media.tumblr.com/265e0fb22d96e08bea81391d2995b8ab/b93506f0e2176062-89/s400x600/0ae28c985abd9d6677e897c81db3fd3fdafb6cf8.gif"/>
-</h5>  
+<img src="https://64.media.tumblr.com/932cd42a4a5bfb1f1a99cc2fb11bde0f/a4913a12e4e6c6d7-a3/s400x600/aa84656106b5039657c54953f1249c42f532b553.pnj"/>
+</h5>
+
 <h4 align="center">
 
 Care is to be taken whenever you are speaking to me , ALWAYS . <img src="https://64.media.tumblr.com/bd5f9673e25be5b1ef369bce4bfa6cec/4e25f56b77720d16-4a/s75x75_c1/d57551167bb3efafcb205e796df5ff1053256b76.gif"/>
@@ -36,7 +38,7 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 </h5>
 
 <p align ="center">
-<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gif"/>
+<img src="https://64.media.tumblr.com/c05bb846f8cc99a1184ccd93a1cbd04c/773a41650f1e6f3c-83/s400x600/41a6f862bb6a1c8c99f616b3cd43c1c22d5ad967.webp"/>
 </h5>
 
 <img src="https://64.media.tumblr.com/199a405970ba88a8453b1c0d906e67a2/ca6818333059b6b1-c7/s1280x1920/8e6237cb0ef534e32bc5ee6402371d7a22d01d98.pnj"/>
