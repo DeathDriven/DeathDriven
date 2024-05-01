@@ -7,7 +7,7 @@ NAVIA THEME IN PROGRESS <3
 </h5>
 
 
-$${\color{#ac191c}"\space You \space can \space find \space me \space in \space the \space stars \space"}$$
+$${\color{#de911f}"\space You \space can \space find \space me \space in \space the \space stars \space"}$$
 <h5 align="center">
 <img src="https://64.media.tumblr.com/51980aec8db84c1aec8f4a4fce0ed2f9/3fa4bf346738eaa6-51/s640x960/1eb23e6e31d4f1e445d35c7a50e02040b903afbf.pnj"/>
 </h5>  
@@ -23,15 +23,22 @@ Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan , Neuvillette 
 
 <h4 align="center">
 
-Care is to be taken whenever you are speaking to me , ALWAYS . <img src="https://64.media.tumblr.com/bd5f9673e25be5b1ef369bce4bfa6cec/4e25f56b77720d16-4a/s75x75_c1/d57551167bb3efafcb205e796df5ff1053256b76.gif"/>
+Care is to be taken whenever you are speaking to me , ALWAYS . <img src="https://64.media.tumblr.com/6661674349234b24d5a909e8da633742/tumblr_inline_msbvj6zNnM1rkldve.gif"/>
 
 For ponytown , do check my [Patreon](https://patreon.com/villyth) , and for general, check out my [rentry](https://rentry.co/Keqingxuan) which is currently being redone .
 Sign my [guestbook](https://villyth.123guestbook.com/) and I will attempt to respond as quick as possible ! <img src="https://64.media.tumblr.com/a5d4464a34c7da921c8f06e94d2f0e2c/f56584a62a20a833-66/s75x75_c1/1b40ffd353a1483a998e013eace63f18378df988.gif"/>
 
-C+H is always welcomed unless my user states DNI / DNT . I will distance myself , my sincere apologies .. <img src="https://64.media.tumblr.com/3b0de7bc29f7276aab1e4ca49a8179be/f56584a62a20a833-0b/s75x75_c1/bf9187ddf0223a2e3f7bdef9bef427e8932254e2.gif"/>
+C+H is always welcomed unless my user states DNI / DNT . I will distance myself , my sincere apologies .. <img src="https://64.media.tumblr.com/03c51232aaaf1cda74bb47cfbf0bac59/39e4a3799b55f633-75/s75x75_c1/0f3cd0cdad1b958960aeef252f92e5ff8f62fd8f.gif"/>
 
-Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it comes to my IRLs , ( DOUBLES OF DAN HENG / DAN FENG , BOOTHILL , HUA CHENG , ZHONGLI , NEUVILLETTE AND CHILDE DO NOT INTERACT / SRS I get aggressive against you guys when I ' m shifted to them delusionally I ' m so sorry ! ) , I have a typing quirk if you haven ' t noticed . . . I space out my punctuation UNLESS very upset . DO NOT REALITY CHECK PLEASE ! I do not like the ' F ' slur . KYS / KMS jokes are STRICTLY not allowed , etc <img src="https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/4e25f56b77720d16-dc/s75x75_c1/57a538e04a41243c39e47cf3233dea812e619c07.gif"/>
+Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it comes to my IRLs , ( DOUBLES OF DAN HENG / DAN FENG , BOOTHILL , HUA CHENG , ZHONGLI , NEUVILLETTE AND CHILDE DO NOT INTERACT / SRS I get aggressive against you guys when I ' m shifted to them delusionally I ' m so sorry ! ) , I have a typing quirk if you haven ' t noticed . . . I space out my punctuation UNLESS very upset . DO NOT REALITY CHECK PLEASE ! I do not like the ' F ' slur . KYS / KMS jokes are STRICTLY not allowed , etc. Rentry is being remade! <img src="https://64.media.tumblr.com/04526a12ae547175bec8bddca523aac4/255eb9aeeda87af1-95/s1280x1920/27e2bb71e57b2f6e434719630089fd4d09e839ca.gif"/>
 </h4> 
+
+<div align="center">
+  
+[![](https://64.media.tumblr.com/bea15a8ab0955302c1061c8bb87130d6/e5a7cc72b2270d5a-a1/s500x750/381b8befa4163311db2e04b658ed882dd8d2243e.pnj)](https://rentry.co/Keqingxuan)
+[![](https://64.media.tumblr.com/10efbe4d6c363ed2eef1c72a21a262d5/e5a7cc72b2270d5a-b9/s1280x1920/1301fa277517f3b8a850dc7e75e17823d56ce60a.pnj)](https://villyth/guestbook123.com)
+[![](https://64.media.tumblr.com/486112e903a5a33072e3c74b20e767d4/e5a7cc72b2270d5a-fb/s1280x1920/0d3678ceca31c860ac3fe85533b48a0850a2b82e.pnj)](https://patreon.com/villyth) 
+</div>
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/05264f13fe2b6e9e9d35ad78754e6579/773a41650f1e6f3c-81/s540x810/3ed15b2fded8fc83a4d934041ffefb43e5f59a2d.pnj"/>
