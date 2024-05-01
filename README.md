@@ -34,7 +34,7 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 </h4> 
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/f28415f16e7d38bc2fae245a515631ea/0b1cbee1c0dad611-57/s2048x3072/badc4733390c1431d4bb4c4ddf74b66b417c2e6c.pnj"/>
+<img src="https://64.media.tumblr.com/05264f13fe2b6e9e9d35ad78754e6579/773a41650f1e6f3c-81/s540x810/3ed15b2fded8fc83a4d934041ffefb43e5f59a2d.pnj"/>
 </h5>
 
 <p align ="center">
