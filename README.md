@@ -7,7 +7,7 @@ NAVIA THEME IN PROGRESS <3
 </h5>
 
 
-$${\color{#ac191c}"\space Oh, \space get \space what \space we \space deserve \space"}$$
+$${\color{#ac191c}"\space You \space can \space find \space me \space in \space the \space stars \space"}$$
 <h5 align="center">
 <img src="https://64.media.tumblr.com/51980aec8db84c1aec8f4a4fce0ed2f9/3fa4bf346738eaa6-51/s640x960/1eb23e6e31d4f1e445d35c7a50e02040b903afbf.pnj"/>
 </h5>  
