@@ -49,6 +49,4 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 
 <h5 align="center">
 
-CR ;; scarvine & i-haerins for pixels , lumieron , venshuko and lisbunnie-edits for graphics !
-
-Cred to [Orphy!](https://github.com/Ovrpheus) 
+CR ;; virtualdancer, hyp3rst4r, casperz-xs0ulz, tosaytheirprayers & lavendergalactic 4 graphics ! + Mikopixels for pixels !
