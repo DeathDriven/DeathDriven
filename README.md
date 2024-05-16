@@ -29,12 +29,15 @@ C+H is always welcomed unless my user states DNI / DNT . I will distance myself 
 Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it comes to my IRLs , ( DOUBLES OF DAN HENG / DAN FENG , BOOTHILL , HUA CHENG , ZHONGLI , NEUVILLETTE AND CHILDE DO NOT INTERACT / SRS I get aggressive against you guys when I ' m shifted to them delusionally I ' m so sorry ! ) , I have a typing quirk if you haven ' t noticed . . . I space out my punctuation UNLESS very upset . DO NOT REALITY CHECK PLEASE ! I do not like the ' F ' slur . KYS / KMS jokes are STRICTLY not allowed , etc. Rentry is being remade! <img src="https://64.media.tumblr.com/04526a12ae547175bec8bddca523aac4/255eb9aeeda87af1-95/s1280x1920/27e2bb71e57b2f6e434719630089fd4d09e839ca.gif"/>
 </h4> 
 
-<div align="center">
+<h5 align="center">
   
-[![](https://64.media.tumblr.com/bea15a8ab0955302c1061c8bb87130d6/e5a7cc72b2270d5a-a1/s500x750/381b8befa4163311db2e04b658ed882dd8d2243e.pnj)](https://rentry.co/villainary)
-[![](https://64.media.tumblr.com/10efbe4d6c363ed2eef1c72a21a262d5/e5a7cc72b2270d5a-b9/s1280x1920/1301fa277517f3b8a850dc7e75e17823d56ce60a.pnj)](https://retrospring.net/@Villyth)
-[![](https://64.media.tumblr.com/486112e903a5a33072e3c74b20e767d4/e5a7cc72b2270d5a-fb/s1280x1920/0d3678ceca31c860ac3fe85533b48a0850a2b82e.pnj)](https://patreon.com/villyth) 
-</div>
+[![](https://64.media.tumblr.com/1eee840b766490f07ecff5cc327919dd/ca6818333059b6b1-85/s400x600/e9b30e59494b8de5c881e07358e85162e54c19cd.gifv)](https://rentry.co/villainary)
+
+[![](https://64.media.tumblr.com/22d36300a95d2d0a3d84ff99875f1a76/ca6818333059b6b1-6f/s400x600/562b16382428c05f6308ec1c0e649eda918c8a4e.gifv)](https://retrospring.net/@Villyth)
+
+[![](https://64.media.tumblr.com/bb72a2c81b088342a2c014cb6855e1b0/ca6818333059b6b1-82/s400x600/da25dea81742e36bb839b13b56a7f02d4255a747.gifv)](https://patreon.com/villyth) 
+
+</h5>
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/05264f13fe2b6e9e9d35ad78754e6579/773a41650f1e6f3c-81/s540x810/3ed15b2fded8fc83a4d934041ffefb43e5f59a2d.pnj"/>
